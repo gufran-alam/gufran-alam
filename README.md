@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **gufranalama2004@gmail.com**
 
-- ⚡ Fun fact **I think i am innocent**
+- ⚡ Fun fact **i am adventures**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
