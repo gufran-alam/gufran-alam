@@ -12,7 +12,7 @@
 
 - 🤝 I’m looking for help with **programming learner**
 
-- 📫 How to reach me **gufranalam2004@gmail.com**
+- 📫 How to reach me **gufranalama2004@gmail.com**
 
 - ⚡ Fun fact **I think i am innocent**
 
